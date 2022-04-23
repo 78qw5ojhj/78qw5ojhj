@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 
 Stupid stuff, won't use github, eat shit
+Smelly garbage, smells like shit, pollutes the environment in the github community, get out!
 
 <!---
 78qw5ojhj/78qw5ojhj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
