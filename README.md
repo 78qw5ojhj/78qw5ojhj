@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-Stupid stuff, github won't use it, eat shit
+Stupid stuff, won't use github, eat shit
 
 <!---
 78qw5ojhj/78qw5ojhj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
